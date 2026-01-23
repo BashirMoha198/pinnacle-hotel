@@ -1,1 +1,1 @@
-# miriams-palace-resort
+pinnacle-glory-hotel
